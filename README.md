@@ -4,7 +4,9 @@ ________________________________________________________________________________
 Acadêmico de Informática - IFTO.
 
 Artista, Programador.
+
 TO - Formoso do Araguaia.
+
 Estudando Ciências Sociais e Artes Cênicas.
 𓂀
 
