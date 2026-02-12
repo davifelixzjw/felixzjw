@@ -7,7 +7,7 @@ Artista, Programador.
 
 TO - Formoso do Araguaia.
 
-Estudando Ciências Sociais e Artes Cênicas.
+Estudando Ciências Sociais. Programação e Artes Cênicas.
 𓂀
 
 
